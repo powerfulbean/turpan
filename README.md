@@ -1,1 +1,1 @@
-Turpab | 吐鲁番
+Turpan | 吐鲁番
